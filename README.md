@@ -25,4 +25,12 @@ Algunos links de Software para código creativo y control DMX:
 
 
 
+State of the art :
+
+
+[Christopher Bauder](https://www.youtube.com/watch?v=okApKTUYAFw)
+
+[ Art+Com studios](https://www.youtube.com/watch?v=OgMo6ZBc5lw&feature=youtu.be)
+
+[Takashi Aoki](https://vimeo.com/56270798)
 
